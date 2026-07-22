@@ -35,5 +35,5 @@ To leverage data analytics to solve business problems and contribute to organiza
 
 ## 📫 Connect With Me
 
-- LinkedIn: (https://www.linkedin.com/stellanwoye)
+- LinkedIn: (https://www.linkedin.com/in/stella-nwoye-b5725323a)
 ⭐ Thanks for visiting my GitHub profile!
